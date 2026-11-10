@@ -1,3 +1,3 @@
 # PROJECT
 
-Hi i am shasi
+These are my screen shots
